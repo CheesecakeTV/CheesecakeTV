@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Many things, mainly digital communications though
 - 💞️ I’m looking to collaborate on ... my rent
 - 📫 How to reach me ...
-- 😄 Pronouns: ... No...
+- 😄 Pronouns: ... That strange guy over there
 - ⚡ Fun fact: ... I can jump higher than most houses.
 
 <!---
